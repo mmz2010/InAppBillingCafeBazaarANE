@@ -7,6 +7,6 @@ this is a Air Native Extension for purchase in app by Flash professional or Flas
 با حجم تقریبا 204 مگ
 http://www.aparat.com/v/Qadeg
 
-دانلود با حجم 111 مگ
+دانلود آموزش تصویری با حجم 111 مگ
 http://iranupload.com/6a07xnava251/inAppCafeBazaar12.7z.html
 
